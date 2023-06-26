@@ -2,9 +2,9 @@
 
 导航永域名Https://nmtv.vip
 
-⭐️ 👉地址一：https://nm002.cc
+⭐️ 👉地址一：https://nm066.cc
 
-⭐️ 👉备用导航：https://nm003.cc
+⭐️ 👉备用导航：https://nm067.cc
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
 
